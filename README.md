@@ -15,6 +15,11 @@
 
 - contact for support
 
+#### todo
+
+- link to ana's initial statement about the incident, the Unite OR statement that Kayse issued, and the change.org petition.
+- get good quotes from leaders could be helpful as well
+- add the #TriMetWhileWhite hashtag and coverage. 
 
 ## Articles in media
 
